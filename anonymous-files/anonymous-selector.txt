@@ -2,5 +2,6 @@
 
 [Person One](person-one.md)
 
-[To the Public Folder](../public-named-files/public-selector.txt)
-[To the Interview Questions](../interview-questions.md)
+[Link to the Interview Questions](interview-questions.md)
+[Link to the Anonymous Folder](anonymous-files/anonymous-selector.txt)
+[Link to the Public Folder](public-named-files/public-selector.txt)
