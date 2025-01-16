@@ -1,9 +1,0 @@
-## This will take you to the anonymous interview!
-
----
-[Person One](person-one.md)
----
-[Link to the Interview Questions](interview-questions.md)
----
-[Link to the Public Folder](public-named-files/public-selector.txt)
----
