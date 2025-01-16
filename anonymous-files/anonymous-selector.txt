@@ -1,6 +1,6 @@
 ## This will take you to the anonymous interview!
 
-[Person 1](person-one.md)
+[Person One](person-one.md)
 
-[To the Public Folder](../[public-named-files/public-selector.txt)
+[To the Public Folder](../public-named-files/public-selector.txt)
 [To the Interview Questions](../interview-questions.md)
