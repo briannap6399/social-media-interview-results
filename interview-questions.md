@@ -22,6 +22,6 @@
 
 ### 11) Are you alright with this being quoted for the overall essay? (If yes, give the name you'd like for me to use)
 
-[Go to Anonymous Interviews](anonymous-files/anonymous-selector.txt)
+[Go to Anonymous Interviews](anonymous-files/anonymous-interview.txt)
 [Go to Public Interviews](public-named-files/public-selector.txt)
 [Head Back to README](README.md)
