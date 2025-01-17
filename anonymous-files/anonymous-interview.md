@@ -1,16 +1,44 @@
-1. for as long as i remember, honestly; been shoved a phone into the face at quite an early age
+
+
+6) Whenever you feel anxious or stressed thanks to social media, what do you do to try and calm yourself.
+
+7) Would you say your experience on social media is more positive or negative?
+
+8) How would you describe "Internet Drama"? Have you experienced it? If so, tell me how.
+
+9) Have you ever taken any breaks due to social media? If yes, tell me the duration of these breaks.
+
+10) Without asking around or doing proper research, do you think that a lot of people in the neurodivergent community has seen/engaged with internet drama? Explain why or why not.
+
+11) Are you alright with this being quoted for the overall essay? (If yes, give the name you'd like for me to use)
+
+
+
+# Numbered Clips were Bri's Questions
+
+ 1) How long have you been using social media?
+
+ For as long as i remember, honestly; been shoved a phone into the face at quite an early age
+
+
 
 2. YT has definitely been there for years, shaping me into... mostly what i am now (you can tell)
 
-3. again, it shaped me into what i am, which is both a positive... and a negative
+3) What are your experiences with your most used app? (Positive and Negative are fine)
+
+Again, it shaped me into what i am, which is both a positive... and a negative
 influenced my opinions, behaviors, i guess even how i think and stuff
-that is a big can of worms, ill say
+that is a big can of worms, ill say.
 
-4. there's only one person i can definitely remember that would be the closest to fitting this answer
+4) Have you felt any negative feelings that were brought upon by another social media user?
+
+There's only one person i can definitely remember that would be the closest to fitting this answer
 not sure if i wanna talk about them
-not sure if it's because ive already said things about her or if it's because i dont wanna go another trip down that memory lane, but either way... just, yeah
+not sure if it's because ive already said things about her or if it's because i dont wanna go another trip down that memory lane, but either way... just, yeah.
 
-5. *extends and shakes hands towards girlfriend like it's the end of a musical number and im introducing someone new* /silly
+5) Have you ever felt emotional attachment towards something or someone featured on social media. If so, what or who? (You can be vague with this one)
+
+*Extends and shakes hands towards girlfriend like it's the end of a musical number and im introducing someone new* /silly
 (no im being serious here btw, she's the only thing keeping me together at this point
 if i were to type out how much im attached to her and why, id never shut up)
 
