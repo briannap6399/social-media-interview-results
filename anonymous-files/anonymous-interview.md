@@ -1,7 +1,5 @@
 
 
-6) Whenever you feel anxious or stressed thanks to social media, what do you do to try and calm yourself.
-
 7) Would you say your experience on social media is more positive or negative?
 
 8) How would you describe "Internet Drama"? Have you experienced it? If so, tell me how.
@@ -42,7 +40,9 @@ not sure if it's because ive already said things about her or if it's because i 
 (no im being serious here btw, she's the only thing keeping me together at this point
 if i were to type out how much im attached to her and why, id never shut up)
 
-6. is it funny that crossdressing was my first way of coping with being overwhelmed by those stuff??
+6) Whenever you feel anxious or stressed thanks to social media, what do you do to try and calm yourself?
+
+Is it funny that crossdressing was my first way of coping with being overwhelmed by those stuff??
 it's a little story in of itself tbh lol
 
 7. ill still say it's a 50/50... roughly-
