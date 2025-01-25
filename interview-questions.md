@@ -4,6 +4,8 @@
 
 ### 1) How long have you been using social media?
 
+### 2) What social media app have you used the most throughout the duration of your life?
+
 ### 3) What are your experiences with your most used app? (Positive and Negative are fine)
 
 ### 4) Have you felt any negative feelings that were brought upon by another social media user?
