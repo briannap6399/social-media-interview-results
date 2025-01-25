@@ -45,3 +45,9 @@ if i were to type out how much im attached to her and why, id never shut up)
 
 11) Are you alright with this being quoted for the overall essay? (If yes, give the name you'd like for me to use)
  #### No Response..
+
+ ---
+ [Back to README](../README.md)
+ [To Public Interviews](../public-named-files/public-interview-selector.md)
+ [To Interview Questions](../interview-questions.md)
+
