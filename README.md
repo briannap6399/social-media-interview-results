@@ -10,6 +10,6 @@ As a member of the Neurodivergent Community myself, I had fun orchestrating thes
       - Brianna D. Peralta
 
 
-[Link to the Interview Questions](interview-questions.md)
-[Link to the Anonymous Folder](anonymous-files/anonymous-interview.md)
-[Link to the Public Folder](public-named-files/public-interview-selector.md)
+[To the Interview Questions](interview-questions.md)
+[To the Anonymous Interview](anonymous-files/anonymous-interview.md)
+[To the Public Selector](public-named-files/public-interview-selector.md)

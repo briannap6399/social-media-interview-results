@@ -48,6 +48,6 @@ if i were to type out how much im attached to her and why, id never shut up)
 
  ---
  [Back to README](../README.md)
- [To Public Interviews](../public-named-files/public-interview-selector.md)
- [To Interview Questions](../interview-questions.md)
+ [To Public Selector](../public-named-files/public-interview-selector.md)
+ [Back to Interview Questions](../interview-questions.md)
 
