@@ -11,5 +11,5 @@ As a member of the Neurodivergent Community myself, I had fun orchestrating thes
 
 
 [Link to the Interview Questions](interview-questions.md)
-[Link to the Anonymous Folder](anonymous-files/anonymous-interview.txt)
-[Link to the Public Folder](public-named-files/public-interviews.txt)
+[Link to the Anonymous Folder](anonymous-files/anonymous-interview.md)
+[Link to the Public Folder](public-named-files/public-interview-selector.md)
