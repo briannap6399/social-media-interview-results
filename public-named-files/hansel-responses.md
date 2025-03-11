@@ -8,7 +8,7 @@
 
  3) What are your experiences with your most used app? (Positive and Negative are fine)
 
-    Hansel: Pretty good overall with Roblox!! Some kids are rude which sucks, but it’s fine. YouTube introduced me to some pretty fucked up stuff, though.
+    Hansel: Pretty good overall with Roblox!! Some kids are rude which sucks, but it’s fine. YouTube introduced me to some pretty f*cked up stuff, though.
 
 4) Have you felt any negative feelings that were brought upon by another social media user?
 
